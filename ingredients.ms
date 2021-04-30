@@ -1,0 +1,1 @@
+combine milk,sugar,and vanilla in a medium bowl.
